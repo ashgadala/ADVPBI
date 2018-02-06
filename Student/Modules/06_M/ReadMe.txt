@@ -1,1 +1,1 @@
-The content for this module will be added to this repository on Tuesday morning.
+The content for this module will be added to this repository on Tuesday after lunch
